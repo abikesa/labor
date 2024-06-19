@@ -17,7 +17,7 @@
 - Labor vs. Unintelligent-Machines `1st, 3rd, 5th, ♭♭7, 9th`
   
 ### Sing O Muse! [4](https://abikesa.github.io/in-the-moment/)
-- AI-Powered Communicative `11th, 13th`
+- AI-Powered & Communicative `11th, 13th`
 
 ### Apollo 5, 6
 - More Frequent Iterations `♭9,♯9,♯11,♭13`
